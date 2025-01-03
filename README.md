@@ -1,2 +1,2 @@
-# psychic-guide
+self improvement
 personal development
